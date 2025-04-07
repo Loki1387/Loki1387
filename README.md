@@ -6,9 +6,9 @@
  
 I'm William, I'm in my mid 30s, I'm transmasc and pansexual.<p>
 As you can likely tell I adore villains and I adore horror.<p>
-I am very much 'ship and let ship'/Anti-Harassment/Proship, it's fiction my dudes, it ain't real, chill.
-
-Safe Server =|= Kids only
+I am very much 'ship and let ship'/Anti-Harassment/Proship, it's fiction my dudes, it ain't real, chill.<p>
+<p>
+Safe Server =|= Kids only<p>
 The server is for <b><i>everyone</i></b>, the only rules are no swearing and not tlaking about adult topics.
 </div>
 
