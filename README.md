@@ -9,6 +9,7 @@ CEO of Aftoncest - Will/Mike supremacy!<p>
 As you can likely tell I adore villains and I adore horror.<p>
 I am very much 'ship and let ship'/Anti-Harassment/Proship, it's fiction my dudes, it ain't real, chill.<p>
 <p>
+You will likely find me sat at the Proship tree typically as Springtrap or William, I'm usually off-tab or sleeping.<p>
 Safe Server does not mean it is for Kids only.<p>
 The server is for <b><i>everyone</i></b>, the only rules are no swearing and no talking about adult topics.
 </div>
